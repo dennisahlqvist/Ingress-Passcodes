@@ -1,10 +1,5 @@
 # Ingress-Passcodes
 
-2017-04-01
-
-
-
-
 2017-03-31
 qqkt8ux5dj89udkc
 
