@@ -1,5 +1,20 @@
 # Ingress-Passcodes
 
+2017-08-31
+L8  mmjr8ek3ar28ejjy
+L8  ezq77l8d568bw
+L8  rdka8ud6xk86demh
+L8  gmcr9uq6fg92teky
+L8  tqc94ak659pn
+L8  evbh2gg8vm76pttj
+L4  quanta6ey28ay7
+L4  brainwave7xx77kf6
+L2  2D8ZAXJWL2
+
+
+2017-08-17
+L4  recursion8pj38fq4
+
 2017-03-31
 qqkt8ux5dj89udkc
 
