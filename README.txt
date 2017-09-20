@@ -7,6 +7,8 @@ L8  rdka8ud6xk86demh
 L8  gmcr9uq6fg92teky
 L8  tqc94ak659pn
 L8  evbh2gg8vm76pttj
+L8  motr4uv3ku63vagn
+L8  fayb7xx2gc33repg
 L4  quanta6ey28ay7
 L4  brainwave7xx77kf6
 L2  2D8ZAXJWL2
