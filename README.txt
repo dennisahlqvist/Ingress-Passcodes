@@ -1,5 +1,7 @@
 # Ingress-Passcodes
 
+2018-07-19
+L8  rnh57cfi348dr
 
 2018-07-18
 L8  szu96cfs246er
