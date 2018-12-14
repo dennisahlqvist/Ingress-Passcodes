@@ -1,5 +1,20 @@
 # Ingress-Passcodes
 
+2018-11-19
+L8  BET45AK239W0
+L8  REX49S5F8T924KD
+
+
+2018-11-28
+L8  shz34ak985nd
+
+2018-09-26
+L8  afq85ak435js
+
+2018-08-30
+L8  npv76ak993sw
+
+-----------------------------------
 2018-07-19
 L8  rnh57cfi348dr
 
@@ -234,4 +249,47 @@ resonate6wb48ec4
 jackland8vf92qz5
 ezekiel7eu89au4
 ingress9tu32jk7
+
+
+
+
+Fully redeemed 2018
+
+knx73cfs665xf
+uhv88cfs952zd
+jss33cfs248tx
+eah68cfs687ww
+HTB76CFS825GP
+FZG66CFS647VG
+uyo74cfs764to
+
+--------------------------
+
+
+untested from 2018
+
+2018-11-19
+
+mkb69ysix998kp
+zkm55ysix876kv
+wjv55ysix898ad
+WQQ38YSIX592HU
+jpq87ysix939fh
+Wbc47ysix297hb
+AQD63YSIX256ZC
+SYB57AIC849PE
+KNS53AIC795VT
+twp56d1980273uh
+oev38ysix837ze
+ucc68ysix279uu
+fac73ysix327wc
+
+mkb69ysix998kp
+
+
+
+aqd63ysix256zc
+
+
+
 
