@@ -1,5 +1,8 @@
 # Ingress-Passcodes
 
+2020-01-18
+L8  gox64jama258sd
+L8  cpp35jama422aa
 
 2020-01-01
 L8  mme822020472oh
